@@ -1,2 +1,4 @@
 # Imteyaz
-Its me learning to improve my skills.
+its my delhi account git repository.
+so treat it right.
+cant be taken.
